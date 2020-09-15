@@ -1,2 +1,3 @@
-### Helly You van Mono Niek
-# De 1e opdracht is er nu ook
+### Hell You van Mononiek
+# alle opdrachten van vorige week zijn er nu.
+
