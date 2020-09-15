@@ -1,3 +1,3 @@
-### Hello You van Mononiek
+### Hello You van Monique
 # alle opdrachten van vorige week zijn er nu.
 
