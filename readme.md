@@ -1,3 +1,3 @@
-### Hell You van Mononiek
+### Hello You van Mononiek
 # alle opdrachten van vorige week zijn er nu.
 
